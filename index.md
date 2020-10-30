@@ -1,19 +1,6 @@
-## Welcome to Nark
+## Welcome to Nabs
 
 
 ### noun
-1.
-BRITISH
-a police informer.
 
-"I'm not a copper's nark"
-
-2.
-AUSTRALIAN • NEW ZEALAND
-an annoying person or thing.
-
-
-### verb
-BRITISH
-cause annoyance to.
-"women like her nark me"
+The word Nabs derives from a National Biscuit Company (Nabisco) product called “Peanut Sandwich Packet” that hit the market in 1924. The sleeve of snack.
